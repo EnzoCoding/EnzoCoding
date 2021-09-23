@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EnzoCoding
-- 👀 I’m interested in: following Jesus, loving all people and caring about all life.
+- 👀 I’m interested in: following Jesus, loving all people and caring about living beings in general, while staying away from the enemy forces.
 - 🌱 I’m currently learning: everything useful for the mentioned interest.
 - 💞️ I’m looking to collaborate on: anyone willing to do the same interest.
 - 📫 How to reach me: you need to reach Him not me. :)
